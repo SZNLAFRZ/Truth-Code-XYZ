@@ -79,7 +79,7 @@ But distortion is only half the picture. In alignment, the Fruits of the Spirit 
 
 Beyond the fruits, each spirit carries divine gifts — specific talents you were sent to give (communication, leadership, craft, creativity, athleticism, spiritual sensitivity, and more). Gifts unlock through alignment; under distortion they decay, under love they bloom.
 
-*For the deeper anatomy of the spirit — the divine spark Okra and the personal spirit Sunsum — see Spiritual Mathematics, Foundational Principle 1.*
+*For the deeper anatomy of the spirit — the divine spark Okra and the personal spirit Honhom — see Spiritual Mathematics, Foundational Principle 1.*
 
 ### The Polarity Dance
 

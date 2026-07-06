@@ -4,7 +4,7 @@ The polarity teachings — particularly the masculine and feminine architecture 
 
 The biblical citations throughout draw on the King James and New International translations.
 
-The Akan terms *Okra* (the divine spark) and *Sunsum* (the personal spirit) come from the spiritual heritage of the Akan people of West Africa.
+The Akan terms *Okra* (the divine spark) and *Honhom* (the personal spirit) come from the spiritual heritage of the Akan people of West Africa.
 
 The diagnosis of pride as the root of suffering is taught across the planet. The call to acceptance carries the weight of Buddhism's teaching on the cessation of suffering. The call to faith carries the weight of every wisdom tradition that has ever asked humans to trust what cannot yet be seen.
 

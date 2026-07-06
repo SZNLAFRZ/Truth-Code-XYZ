@@ -14,7 +14,7 @@
 
 **Okra** — Akan term for the divine spark; the part of you that came directly from the Most High.
 
-**Sunsum** — Akan term for the personal spirit; the unique signature each soul carries.
+**Honhom** — Akan term for the personal spirit; the unique signature each soul carries.
 
 **X + Y = Z** — a heuristic for how outcomes are formed. X (the event) plus Y (your response) equals Z (the result). Not mathematics — a memorable shape for a simple truth.
 
